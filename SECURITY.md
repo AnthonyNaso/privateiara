@@ -1,0 +1,122 @@
+<div class="footer">
+  <p>Aviso: Este site possuí conteúdo para maiores de 18 anos, se for menor de idade por favor feche o site.</p>
+  <p>O serviço envolve conteúdo sexualmente adulto, é oferecido SOMENTE para maiores de 18 anos. A empresa dispõe de filtro identificador, em caso de dúvidas da idade do usuário a transmissão do conteúdo impróprio para menores de 18 anos, será IMEDIATAMENTE cancelada.</p>
+  
+  <p>Acessando o SITE, você CONCORDA com todos os termos.</p>
+
+Aviso: Este site possuí conteúdo para maiores de 18 anos, se for menor de idade por favor feche o site.
+    O serviço envolve conteúdo sexualmente adulto, é oferecido SOMENTE para maiores de 18 anos. A empresa dispõe de filtro identificador, em caso de dúvidas da idade do usuário a transmissão do conteúdo impróprio para menores de 18 anos, será IMEDIATAMENTE cancelada.
+
+ 
+
+Acessando o SITE, você CONCORDA com todos os termos.
+
+ 
+
+DAS REGRAS GERAIS DE UTILIZAÇÃO
+
+ 
+
+     O presente acordo estabelece os termos obrigatórios que irão reger a relação comercial e jurídica entre o site domínio, e seus Usuários.
+
+    Em conformidade com a legislação civil em vigor, o presente acordo de utilização é um contrato, ainda que firmado por meio eletrônico, tem validade e eficácia jurídica. A finalidade deste contrato versa em garantir a realização de uma política de transparência, privacidade e segurança para ambas as partes, a fim de permitir uma melhor utilização do site pelos seus usuários. De acordo com a legislação em vigor, os termos de utilização do domínio, poderá sofrer atualizações. Assim sendo, será necessário que ao acessar o site o usuário concorde com os termos de utilização. Ao contratar os serviços do website, é preciso que se obrigue a determinados deveres, abaixo indicados. No momento em que qualquer um destes deveres forem infringido e causar qualquer prejuízo ao site ou terceiros poderá a parte prejudicada, promover as medidas judiciais cabíveis, nos termos da legislação civil.
+
+Após leitura atenta das regras de utilização, indique na caixa de aceitação, "Opção".
+
+ 
+
+Em caso de concordância com as regras, marque a opção correspondente.
+
+ 
+
+    Em caso de aceitação, os deveres e as normas aqui transcritas considerar-se-ão lidas e deverão ser obrigatoriamente cumpridas. A partir do momento em que os serviços oferecidos neste site forem utilizados, a aceitação deste contrato fica ratificada, indicando que o usuário leu e concordou com TODOS OS TERMOS DE USO. O usuário tem conhecimento e concorda que o serviço é fornecido pelo site, mediante acesso à internet, através de dispositivos próprios, responsabilizando-se pelo equipamento técnico necessário como, computador e periféricos necessários, bem como, pelo provedor de serviço de acesso à Internet. A manifestação de vontade das partes contratantes nos contratos celebrados por meio eletrônico dar-se-á no momento da aceitação dos termos deste contrato. Caso a transmissão do show seja interrompida por culpa exclusiva do contratante, estará obrigado a pagar pelo tempo mínimo de utilização do serviço, ou pelo tempo TOTAL TRANSMITIDO. O fornecimento de falsa informação constitui crime e caso decorra algum dano ou prejuízo a terceiros ou ao próprio SITE, em função da atitude ilegal de seus usuários, este poderá responder judicialmente pelos seus atos e prejuízos causados.
+
+ 
+
+DAS REGRAS INTERNAS DE USO
+
+ 
+
+    Somos uma empresa de entretenimento, a modelo que irá apresentar o SHOW é uma profissional educada e responsável. Desta forma, exige-se do usuário reciprocidade. Então, divirta-se com responsabilidade, pois o objetivo do trabalho oferecido pela modelo é satisfazê-lo, mas, também de ser respeitada. O serviço é oferecido SOMENTE para maiores de 18 anos. A empresa dispõe de filtro identificador, em caso de desconfiança da idade do usuário a transmissão/ comunicação será IMEDIATAMENTE interrompida. 
+
+     Todo conteúdo gerado faz parte do acervo temporário do site, não havendo qualquer direito sobre as imagens, uma vez, que serão inteiramente deletadas quando da finalização do contrato celebrado entre as partes. A empresa prestadora do serviço, garante sigilo absoluto das imagens e conversas capturadas ou registradas de seus usuários SALVO, no caso de cobrança judicial por falta de pagamento do valor devido, ou por determinação judicial.
+
+   Como o serviço é expressamente proibido para menores de 18 anos, a imagem do usuário poderá ser registrada, para comprovação da maioridade.
+
+    Como se trata de um serviço pago, o SHOW só terá inicio se o usuário interessado, ABRIR A CÂMERA do seu aparelho, dando por aceite todos os termos de uso.
+
+    O tempo mínimo para contratar o serviço é de 15 (QUINZE) minutos. O custo por minuto POS PAGO é 14,66(em moeda local). Caso o usuário não atinja o tempo mínino,após o pagamento, poderá solicitar a complementação com a mesma modelo, quando esta estiver disponível.
+
+    Os depósitos para pagamento são de responsabilidade do usuário e devem ser feitos de acordo com os dados informados, depósitos irregulares ou realizados para conta ou pessoa diversa não serão considerados, devendo o usuário providenciar novo pagamento para quitação do débito.
+
+    Para clientes de fora do Brasil, poderá fazer pagamentos pelo Western Union ou Casa Cambial.
+
+    Antes da contratação do serviço o usuário recebe um video com uma legenda contendo informações, tais como: PREÇO DO SHOW, PREÇO POR MINUTO, TEMPO MINIMO DE DURAÇÃO E FORMA DE PAGAMENTO.
+
+    Todas as modelos que aparecem neste site são maiores de 18 anos. As imagens são meramente ilustrativas.
+
+ 
+
+POLITICA DE PRIVACIDADE E SEGURANÇA
+
+ 
+
+     O contratado, possui uma política de privacidade e segurança extremamente rígida que visa proteger os seus Usuários contra o uso indevido das suas informações pessoais por terceiros.
+
+    Assim sendo, a web site, não negocia nem divulga o conteúdo relativo ao show, sejam mensagens ou imagens, como também não compartilha ou divulga o telefone ou endereço eletrônico do USUÁRIO, com terceiros ou empresas. Podendo ser disponibilizadas, somente por ordem judicial ou quando promovida a cobrança judicial de valores não pagos.
+
+    O contratado, utiliza tecnologia de ponta para garantir a segurança e a proteção dos seus dados contra o acesso de pessoas não autorizadas.
+
+ 
+
+ DAS OBRIGAÇÕES DO USUÁRIO
+
+ 
+
+O Usuário responsabiliza-se por todas as informações que transmite no momento da contratação dos serviços. O Usuário DEVE ser maior de 18 anos para contratar os serviços oferecidos.
+
+ 
+
+O SITE não se responsabiliza pela veracidade das informações prestadas pelo usuário e caso haja omissão, imprecisão ou simulação nas informações será responsabilizado nos termos da lei.
+
+ 
+
+O fornecimento de falsas informações configura o crime de falsidade ideológica, conforme prevê o artigo 299 do Código Penal o que pode levar a uma pena que varia entre um a três anos de prisão, acrescida de multa.
+
+ 
+
+O Usuário não poderá violar, intencionalmente ou não, qualquer norma legal presente no sistema legal, nem alegar desconhecimento das disposições normativas vigentes.
+
+ 
+
+Caso haja violação de qualquer uma destas disposições ou de quaisquer outras que violem as regras pré-estabelecidas e aceitas por ambas as partes, poderá a parte prejudicada buscar sua efetiva reparação na justiça, nos termos da legislação civil e penal.
+
+ 
+
+ 
+
+ 
+
+DO FORO DE ELEIÇÃO.
+
+ 
+
+     As partes em comum acordo elegem o FORO CENTRAL DA CAPITAL DE SÃO PAULO para dirimir eventuais litígios que decorram deste contrato.
+
+ 
+
+DAS DISPOSIÇÕES FINAIS
+
+ 
+
+     Este Acordo será regido pelas leis e as normas internacionais de comércio eletrônico.
+
+ 
+
+courier;">
+
+  <p>&copy; 2023. Todos os direitos reservados.</p>
+</div>
+
+</body>
+</html>
